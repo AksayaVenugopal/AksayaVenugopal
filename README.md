@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 Hi, I'm Aksaya Venugopal<br>Student at Amrita Vishwa Vidyapeetham, Coimbatore
 
 
